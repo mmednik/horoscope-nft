@@ -1,0 +1,1 @@
+# horoscope-nft
